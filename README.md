@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Snickette
+- 👀 I’m interested in fellow opossums and fresh trash
+- 🌱 I’m currently learning how to put on muscle to destroy fiendish raccoons
+- 📫 Wanna fight? Challenge me: dragon.cradle@gmail.com
